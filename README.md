@@ -1,4 +1,4 @@
 # Guilherme Casagrande 
 
-👨🏼‍💻 **Software Engineer**
+👨🏼‍💻 **Software Engineer**  
 📍 **Curitiba - Brasil**
